@@ -1,6 +1,8 @@
 ## hi what's up lol
 
-i play almost exclusively on the 18+ server so i assume everyone i interact with there is an adult.
+i'm not expecting everyone to read this, it's just for fun.
+
+i usually play on the 18+ server but rarely i play on the safe server. i am generally not comfortable befriending people under 16, sorry!
 
 most of my ponies are ocs but i often like to play as characters i feel like people might recognize. if you like my pony i'd love it if you let me know :-)
 
