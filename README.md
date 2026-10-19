@@ -1,6 +1,6 @@
 ## hi what's up lol
 
-i'm not expecting everyone to read this, it's just for fun.
+i'm not expecting everyone to read this, it's just for fun. i didn't make a github specifically for pt which is why my username is um. this
 
 i usually play on the 18+ server but rarely i play on the safe server. i am generally not comfortable befriending people under 16, sorry!
 
